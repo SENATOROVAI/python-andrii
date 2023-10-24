@@ -1,4 +1,4 @@
 # andrii-josaint13
-just do it
+just do it!
 west coast :)
 test
